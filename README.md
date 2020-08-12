@@ -9,3 +9,6 @@ mamo bari jamo
 hala
 amaka 
 chinis
+qswsmq
+sjxjsnxj
+sxskxms
